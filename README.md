@@ -1,1 +1,0 @@
-# batuhanBASAK.github.io
